@@ -1,2 +1,0 @@
-# CV
-Don xin viec
